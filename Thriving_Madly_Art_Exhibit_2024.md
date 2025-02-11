@@ -27,4 +27,8 @@ The way idea of re-evolution to my maddness is that it takes bravery to confiden
 
 </details>
 
+## The Peices I submitted to exhibit. 
+
+
+
 
