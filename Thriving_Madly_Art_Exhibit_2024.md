@@ -1,4 +1,4 @@
-# Thriving Madly Art Exhibit 2024 (Theme: Revolution) 
+# Thriving Madly Art Exhibit 2024 (Theme: Re-evolution) 
 
 <details>
 <summary>About Thriving Madly</summary>
