@@ -29,6 +29,7 @@ The way idea of re-evolution to my maddness is that it takes bravery to confiden
 
 ## The Peices I submitted to exhibit. 
 
+![Re-evolution exhibit 2024](https://github.com/LoonDread/Art_Archives/blob/main/Re-evolution%20Exhibit%202025%20resized.jpg)
 
 
 
